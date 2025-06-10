@@ -44,6 +44,4 @@ When I’m not coding, you’ll probably find me:
 - Sketching & drawing ✏️
 
 ---
-
-> “Do more meaningful stuff—leave the rest to your digital assistants.”  
-> — ThePrunerator
+> “Work smart, not hard.”
